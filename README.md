@@ -24,7 +24,7 @@ It aired from **2011 to 2019** and became one of the most talked-about shows in 
 
 ---
 
-> “When you play the game of thrones, you win or you die.” – Cersei Lannister
+> That's what I do. I drink and I know things" – Tyrion Lannister
 
 ---
 
